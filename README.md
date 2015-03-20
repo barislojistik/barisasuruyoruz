@@ -1,0 +1,2 @@
+# barisasuruyoruz
+İlk Yayinimiz
